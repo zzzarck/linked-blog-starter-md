@@ -1,0 +1,1 @@
+Bionics are robotic bodies that accept the brain of any creature that has one, works as a full body transplant and a 2nd life, while very expensive, they can be refitted to work as anything in any enviorment
