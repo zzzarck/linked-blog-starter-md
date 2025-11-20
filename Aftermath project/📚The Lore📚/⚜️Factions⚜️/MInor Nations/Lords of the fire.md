@@ -1,0 +1,1 @@
+Located in the south-western area of Thagmau, the Lords of the fire inhabit small settlements that often raid the nearby outposts and player bases with fire weaponry. Their HQ is in a slightlt bigger outpost characterized by a giant flaming statue that the Lords of the fire will often be seen praying to.

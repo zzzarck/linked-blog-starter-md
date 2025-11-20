@@ -1,0 +1,1 @@
+A human greenlander in holy ations cities that wants to stray away from okran's lands and live a life out of religion because he doesnt like the philosophy, he asks the player for 3000 cats as they leave the commodity of their life at the holy nation to be a better person

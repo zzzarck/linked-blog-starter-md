@@ -1,0 +1,1 @@
+The druids is a group of aggressive cultists located in the warping forest that have somehow allied the living plants that inhabit the area and use them as weapons

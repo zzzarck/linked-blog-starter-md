@@ -1,0 +1,1 @@
+A small group of survivors that wear armors similar to the ones that appear in old earth's history books while using bows and swords as weapons. They are on a mission to expand the crusade againts the "unholy lands" which they consider to be any non god loving faction territory

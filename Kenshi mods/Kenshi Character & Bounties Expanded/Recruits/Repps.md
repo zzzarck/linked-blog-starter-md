@@ -1,0 +1,1 @@
+A skeleton that's faulty and has robot alzheimers which makes him restart his memory and attitude every now and then.

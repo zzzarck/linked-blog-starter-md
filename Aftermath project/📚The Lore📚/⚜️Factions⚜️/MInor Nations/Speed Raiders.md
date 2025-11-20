@@ -1,0 +1,1 @@
+Groups of bandits located in various plains across the eastern side of Thagmau, they use many of old earth's technologies to make their own armored vehicles that they use to raid the nearby camps and outposts. While they are a fearsome group to fight due to their immunity to most attacks and high speed the rewards for stealing their tech and vehicles are worth it.

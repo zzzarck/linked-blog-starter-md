@@ -1,0 +1,1 @@
+A group of well equipped soldiers that inhabit one of the paths to cross the middle of Thagmau, they try so use an aesthetic similar to the one used by old earth soldiers but aside from that they act like a semi-cohesive group of bandits that terrorize the nearest towns to make them pay tribute or get shot. 

@@ -1,0 +1,1 @@
+When the first scout droids were sent to MеgThéos, some extrangely dissapeared completly out of every sensor, this was marked off as the local fauna attacking the drones however.

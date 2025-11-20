@@ -1,0 +1,1 @@
+Group of bandits located in (some jungle area) that are characterized by their use of tunnels for the building of outpostd and ambushes on enemy factions.

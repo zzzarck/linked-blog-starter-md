@@ -1,0 +1,1 @@
+What used to be one of the biggest groups of survivors now afflicted by a disease that materialized out of nowhere in the island, the plague affects the brain of whoever that is infected and makes them wander aimessly while being extremely aggresive to whatever they encounter, whoever afflicted by the plague does not seem to age or need any form of food or water

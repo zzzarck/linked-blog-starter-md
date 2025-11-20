@@ -1,0 +1,1 @@
+A human greenlander found in waystations that speaks some ancient lenguage (spanish) that nobody understands

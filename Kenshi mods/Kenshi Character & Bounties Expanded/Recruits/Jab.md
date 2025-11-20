@@ -1,0 +1,1 @@
+A human greenlander living in the hub, he is tired of living in poverty and is in severe debt with the bartender after buying many materials to start his own failed business.
