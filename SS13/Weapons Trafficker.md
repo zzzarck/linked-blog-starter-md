@@ -74,6 +74,11 @@ There are 5 weapons dealers that you can talk to as a weapons trafficker, these 
 		- "Quality" Frag Grenade
 		 "A crudely put together explosive device full of metal fragments glued to the outside waiting to be launched at very high velocity towards innocent people, the way it's built doesn't fill you with a lot of confidence, using it might end up badly"
 		 Sells for 500
+- Colony War Veteran (150 rep)
+	 "What used to be a renowned soldier in a colony plagued with dangers and constant attacks now turned into a weapons dealer, he is not very willing to leave his colony but has stablished a teleporter to grant you access to its goods."
+	- Deals
+		- Hand Cranked Phaser
+		 "a phaser used in low budget colonies that trades potency for the ability to crank it by hand, good option for anyone that is going anywhere without rechargers"
 
 
 
