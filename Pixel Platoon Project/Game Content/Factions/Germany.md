@@ -1,0 +1,1 @@
+One of the main factions in the game and one of the nations planned to be ready on release,
