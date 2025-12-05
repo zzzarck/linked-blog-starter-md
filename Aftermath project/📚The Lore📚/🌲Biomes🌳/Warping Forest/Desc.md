@@ -1,0 +1,1 @@
+A forest that seems to change every second, this is probably due to the fact that the entirety of the place is a whole organism that changes it's shape constantly, the inhabitants of the forest worship it as a god and are extremely protective of it, both harming the druids or the forest is quite difficult as they both work in unison to defend each other.

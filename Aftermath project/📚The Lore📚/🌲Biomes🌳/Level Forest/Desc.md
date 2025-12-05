@@ -1,0 +1,1 @@
+A forest bordering mainly the Haunted Plains and Vronbi's Palace, the forest itself is divided into 3 levels, each one going higher and higher nearing the mountains, aside from the dangerous temperatures reaching the top of the forest, it is also patroled by the nearby hunters that do not discriminate animal from human.
