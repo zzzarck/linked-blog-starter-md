@@ -1,0 +1,1 @@
+An isolated faction located in
