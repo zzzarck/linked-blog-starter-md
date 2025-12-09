@@ -1,0 +1,1 @@
+ships that work in weird ways that you cant really understand, might attempt to kidnap your crew to run very ethical experiments with them

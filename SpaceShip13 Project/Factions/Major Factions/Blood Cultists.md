@@ -1,0 +1,1 @@
+an organized cult following their god Nar'sie, their sole goal is to summon him to this world with many convoluted rituals that will probably need the player's help to accomplish, starts hostile to the player unless they show some form of devotion towards nar'sie.

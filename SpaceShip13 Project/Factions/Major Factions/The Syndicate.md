@@ -1,0 +1,3 @@
+A criminal corporation that is spread all around the galaxy, unlike nanotrasen however, they hide among many outposts and ships instead of space stations, they work as one of the major factions, allowing the player to work as a mercenary for them againts various other factions, this will decrease reputation with most of them however.
+
+The syndicate is also not really one sole corporation, but many different criminal organizations working on the common goal of taking down nanotrasen.

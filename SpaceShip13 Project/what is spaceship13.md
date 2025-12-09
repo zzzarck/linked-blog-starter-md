@@ -1,0 +1,3 @@
+spaceship 13 is a game inside the ss13 universe, this time however, instead of working in a space station, you are the captain of a small vessel, you are free to ally or declare war to any of the factions and explore the universe as you want.
+
+your ship is modular and you can customize it to the very last detail, from weapon attachments and ammo types, engine type, power generation, utilities, crew etc.

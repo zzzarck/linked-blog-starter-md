@@ -1,0 +1,1 @@
+the universal guild of wizards, quite organized and chaotic at the same time, might attack anyone if they have something to gain, and they might give the player missions to do their dirty work when they are feeling lazy, in exchange for them teaching you some magic or giving you magical modules.

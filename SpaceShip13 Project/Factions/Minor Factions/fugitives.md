@@ -1,0 +1,1 @@
+groups of criminals that are innocently running away from the law, if they see you as a threat they will become hostile but if you show they can trust you they might ask for help.

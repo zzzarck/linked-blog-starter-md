@@ -1,0 +1,1 @@
+Giant ship sized space creatures that use a more organic (or sometimes synthetic) approach of weaponry

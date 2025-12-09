@@ -1,0 +1,1 @@
+usually found hidng among your crew disguised with someone they ate! teaches you to not trust on absolutely anyone around here, however, can also be rarely found in their own meat ships, after some weird changeling fussion thing.

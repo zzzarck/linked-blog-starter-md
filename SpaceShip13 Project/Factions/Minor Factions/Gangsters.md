@@ -1,0 +1,1 @@
+Space stations and small ships that have been taken hostage by gangs that are equipped with ghetto weaponry

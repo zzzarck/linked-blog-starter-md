@@ -1,0 +1,1 @@
+While not a faction itself, they mostly work under the same rules, stay neutral to most people and sell their goods to anyone willing to pay.

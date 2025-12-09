@@ -1,0 +1,1 @@
+Small fleets of pirate ships commanded by one captain, they will attack anyone that seems weak enough and plunder their booty, while they start hostile to the player, if they show superiority the pirates might be willing to speak.

@@ -1,0 +1,1 @@
+Similar to changeling, will hide among your crewmates but instead of eating them, they will sabotage your ship in small ways you might not even notice.

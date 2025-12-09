@@ -1,0 +1,1 @@
+random groups of synths that managed to escape their evil masters and are now running ships across the galaxy trying to find purpose, might be hostile or not, who knows

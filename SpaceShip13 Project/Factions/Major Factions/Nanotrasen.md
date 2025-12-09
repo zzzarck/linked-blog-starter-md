@@ -1,0 +1,1 @@
+The corporation that owns the stations that spread wide all around the galaxy, in the game, they are one of the major factions able to give missions to the player including endgame ones, however, if the player decides to be an enemy of nanotrasen, his option of trades with the spacestations will be gone.

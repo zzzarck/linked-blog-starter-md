@@ -1,0 +1,1 @@
+bloodsuckers that hide in the darkness and have special bloodsucking ships, quite dangerous if your crewmembers are all natural.

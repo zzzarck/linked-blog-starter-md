@@ -1,0 +1,1 @@
+Scrappers waiting to salvage any piece of debris around space to then sell it or use it for their own devious projects, depending on the one you find they might sell their scraps to you or attempt to kill you with them.

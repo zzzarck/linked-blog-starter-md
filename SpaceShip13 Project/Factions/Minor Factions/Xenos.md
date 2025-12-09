@@ -1,0 +1,1 @@
+Aliens that have plagued many worlds and stations across the galaxy, it is terragov's mission to exterminate them but there is always some remaining. will probably attempt to capture your crew and plant evil little eggs inside them

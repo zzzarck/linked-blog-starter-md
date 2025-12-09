@@ -1,0 +1,1 @@
+In general, any colony that is not under direct control of other faction, they do not share reputation between each other and might give the player various missions, including endgame ones.
