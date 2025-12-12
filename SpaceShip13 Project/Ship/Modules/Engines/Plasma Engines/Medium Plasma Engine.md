@@ -1,6 +1,6 @@
 Size: 2x2
 Base Health: 300
-Speed: 50 km/s
+Speed: 100 km/s
 Heat: 800°C
 Explosive: Yes
 Thrusters: Yes
