@@ -1,0 +1,1 @@
+Usually a small operation run by a family with a contract to chop trees and burn its wood into charcoal to later sell to craftsmen in town, they usually live outside of town and only get a room for winter.

@@ -1,0 +1,1 @@
+the Household Head of a charcoal burning operation, usually the adult male of a family, while a charcoal burning operation is more decentralized and less professional this person still delegates work to everyone else in the household.

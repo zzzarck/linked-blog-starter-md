@@ -1,0 +1,1 @@
+Located at the town square, it provides free water for anybody that needs it, there is also a well located near the river and another one at the entry of town

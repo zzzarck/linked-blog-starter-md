@@ -1,0 +1,1 @@
+does the smaller tasks at the tannery, usually 2 or 3 people are assigned as tanner apprentices, they listen direectly to the tanner and when hes not there they listen to the tanner's wife
