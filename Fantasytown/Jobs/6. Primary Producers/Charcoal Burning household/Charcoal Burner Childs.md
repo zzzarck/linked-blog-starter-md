@@ -1,0 +1,1 @@
+the ones that do a lot of the hard work, delegated around by the Household Head, will do both the chopping and burning and a lot of times the hauling into town too.

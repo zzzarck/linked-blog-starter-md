@@ -1,0 +1,1 @@
+keeps track of the logistical needs of the tannery and helps when the tanner isnt around or there arent enough apprentices

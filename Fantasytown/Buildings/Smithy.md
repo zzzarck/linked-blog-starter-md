@@ -1,0 +1,1 @@
+In here tools, weapons, armors, and a variety of people's needs are made, run by 4 - 5 people they work with many minerals to craft their goods and sell them either by commission or in the market.

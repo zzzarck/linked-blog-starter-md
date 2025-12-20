@@ -1,0 +1,1 @@
+Merchants that travel in a fixed trading route in a region to supply all the towns in the path with anything they need, they pack from minerals, meats, wood, to luxuries. they come every so often but unlike opportunistic merchants, they have a fixed amount of times they come by in an amount of time
